@@ -1,2 +1,2 @@
 # kikoo_futif.com
-hahahaha
+this is kikoofurtif.com but in the url i write kikoofutif.com
